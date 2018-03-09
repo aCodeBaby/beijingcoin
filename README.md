@@ -1,0 +1,2 @@
+# beijingcoin
+beijingbeijing coin
